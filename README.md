@@ -1,4 +1,6 @@
-# Lickyyy.github.io
+###### get flashbanged nerd
+
+# Hi
 
 Hi, im Licky, I try to make Gorilla Tag mods and i make edits.
 
