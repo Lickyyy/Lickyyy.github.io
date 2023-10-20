@@ -1,4 +1,4 @@
-###### get flashbanged nerd
+###### get flashbanged
 
 # Hi
 
